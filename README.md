@@ -21,7 +21,7 @@
 ## My Average Weekend
 | 14:30 - 15:00 | 15:00 - 15:30 | 15:30 - 17:00 | 17:00 - 17:30 | 17:30 - 19:00 | 19:00 - 20:00 | 20:00 - 20:45 | 20:45 - 2:50 | 2:50 - 3:00 |
 |-|-|-|-|-|-|-|-|-|
-| Wake up, look at the time, feel like s■■■t :thumbsup: | "*Morning*" routine | Study or catch up on assignments, note that procrastination isn't infrequent | Dinner | Study or catch up on assignments | Workout | Eat and shower |  Study or catch up on assignments, again | Brush my teeth and go to bed |
+| Wake up, look at the time, feel like s■■t :thumbsup: | "*Morning*" routine | Study or catch up on assignments, note that procrastination isn't infrequent | Dinner | Study or catch up on assignments | Workout | Eat and shower |  Study or catch up on assignments, again | Brush my teeth and go to bed |
 
 
 ## Struggles I'm facing
